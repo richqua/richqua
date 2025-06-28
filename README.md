@@ -80,6 +80,5 @@ I'm open to:
 
 > *“Imagination sets the vision, but only practice brings it to life — because every failure is just a stepping stone to success.”* — Richard Quansah
 
----
 
 *Made with ❤️ by Richard Quansah*  
